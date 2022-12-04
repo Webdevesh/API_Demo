@@ -10,8 +10,7 @@
 
 - 🔮 My Codes Are My Future 🔮 🥇🏆
 
-
-#Projext 💪🌅😩🏆🥇🔮🔮
+- #Projext 💪🌅😩🏆🥇🔮🔮
 
 
 
